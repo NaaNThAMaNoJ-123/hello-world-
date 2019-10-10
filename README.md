@@ -1,8 +1,8 @@
 #MY First.... hmmmm....
 idon't  know what it is.....???
 hmmm....
-may its  a tutorial thing or GitHub...!!!
-iam here for blast our world....!!!
+may its  a tutorial thing for GitHub...!!!
+
 
 
 
